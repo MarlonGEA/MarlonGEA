@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MarlonGEA
+- 🛠 I work at GEA Group Germany, as Talent Sourcer
+- 👀 I’m interested in getting to know all the job looking talents
+- 💞️ I’m looking to collaborate in the job field
+- 📫 You can reach me via https://www.linkedin.com/in/marlon-schipper-228b6048/
